@@ -8,9 +8,8 @@ L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui 
 
 ### [Grand Theft Auto online](https://www.rockstargames.com/fr/videos/12263) 
 Cette oeuvre pourrait contribuer a ma démarche artistique car je voudrais faire un jeu qui ressemble à celui ci ou participer au prochain jeu de la même série.C'est mon jeu préféré et c'est pour cela que j'aimerais travailler dedans.
-### [ 
-Expliquer pourquoi vous avez choisi ce lien.
-
+### [Jujutsu Kaisen 0)(https://www.crunchyroll.com/fr/watch/G4VUQ9ZQ3/movie)
+Si je ne peux pas aller dans les jeux vidéo je voudrais aller dans l'animation japonaise.C'est un concepte qui m'intéresse depuis que je suis tout petit car j'ai toujours été fasciné par les animations japonaises
 ### Lien 3 
 Expliquer pourquoi vous avez choisi ce lien.  
 
